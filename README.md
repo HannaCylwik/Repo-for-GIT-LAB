@@ -10,5 +10,4 @@ I AM GOING MAAAD
 This city is rotten.
 
 Changes change.
-For bette..
-Riiiight
+
