@@ -8,3 +8,5 @@ Hero, that city deserves.
 I AM GOING MAAAD
 
 This city is rotten.
+
+Changes change.
